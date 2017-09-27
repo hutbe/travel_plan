@@ -1,2 +1,2 @@
 # travel_plan
-Please Fork MEEEE!!!
+I'm going to have a great trip. Do you want go with me? Come on fork me.
